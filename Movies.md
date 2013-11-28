@@ -1,6 +1,6 @@
 - **Gravity** with Sandra Bullock and George Clooney: Disappointed. Should have used more 
-  time to introduce the characters in their before the disaster. With the 5 minute
-  introduction we get here, I never establish a relation to them and the movie suffers.
+  time to introduce the characters in a neutral sitaution before the disaster. With the 5 minute
+  introduction we get here, I never establish a relation to them and the movie suffers greatly.
   Furthermore a lot of music is used. A lot. Even though one of the cool ideas in the
   movie is that space is silent. I imagine the scene with the parachute in complete
   silence (maybe just hearing the breathing) and then seeing the space station getting
